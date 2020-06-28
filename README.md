@@ -1,6 +1,8 @@
 # Police Brutality - war for humanity
 
-## A small attempt to compose Police Brutality related content
+## A small attempt to compose Police Brutality related content - please suggest more content by adding an issue [here](https://github.com/sjeeva/police-brutality/issues)
+
+### More custodial death
 
 ### Bennix, Jayarajan - The innocent Son and Father 
 
