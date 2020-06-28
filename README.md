@@ -10,6 +10,9 @@ https://twitter.com/edwinarockia/status/1276946666042454021
 #### Suchitra - English
 https://twitter.com/suchi_mirchi/status/1276218996602228737
 
+#### Ahmed Meeran
+https://twitter.com/ahmedmeeranoffl/status/1276460195762155520
+
 #### Barkha Dutta - English 
 https://twitter.com/BDUTT/status/1276914213915488262
 
