@@ -42,8 +42,8 @@ https://twitter.com/BDUTT/status/1276914213915488262
 https://twitter.com/deepadoc/status/1276539376244162561
 
 #### Supreme Court Advocate Krishnamoorthy on Sathankulam Issue - Tamil
-https://www.youtube.com/watch?v=6S5mLMclHsM
-[youtube: நீதிபதி மாற்றம் பெரிய சந்தேகத்தை கிளப்புது Supreme Court Lawyer Interview | JeyarajBennix](https://www.youtube.com/watch?v=m4SzOjxuxec)
+* https://www.youtube.com/watch?v=6S5mLMclHsM
+* [youtube: நீதிபதி மாற்றம் பெரிய சந்தேகத்தை கிளப்புது Supreme Court Lawyer Interview | JeyarajBennix](https://www.youtube.com/watch?v=m4SzOjxuxec)
   
 
 #### Anand Srinivasan with Immanuel - Tamil
